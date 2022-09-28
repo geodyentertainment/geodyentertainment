@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @geodyentertainment! I am a 13 year old kid and owns a Youtube channel! Just search me up or follow this link --> https://www.youtube.com/channel/UCfYAs1Tsm5JcI-F5RilcNeA if you want to check it out!
+- 👋 Hi, I’m @geodyentertainment!
